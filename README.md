@@ -10,9 +10,9 @@
 
 meow
 
-basics that you guys should know before you interact .
+basics that you guys should know before you interact i think
 
-im not very sociable or great at talking to people ; so i might sound dry .
+im not very sociable ; but im nice i swear !!!!
 
 c+h is fine unless im with a friend / im offtab or s-afk a lot so whisper me if i dont reply .
 
